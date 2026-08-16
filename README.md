@@ -9,4 +9,4 @@
 >𝚰 αꭑ 𝗋𝖾ᑲυ𝗂ᥣᑯ𝗂𐓣𝗀 ωɦα𝗍 𝗍ɦ𝖾𝗒 ᑲ𝗋ⱺ𝗄𝖾 ω𝗂𝗍ɦⱺυ𝗍 ꭑ𝗒 𝖼ⱺ𐓣𝗌𝖾𐓣𝗍.
 
 ## 𝗗𝗼𝗻'𝘁 𝗺𝗮𝗸𝗲 "𝘀𝗵𝗶𝗽𝗽𝗶𝗻𝗴" 𝗼𝗿 𝗱𝗮𝘁𝗶𝗻𝗴 𝗷𝗼𝗸𝗲𝘀 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲 𝗼𝗿 𝗺𝘆 𝗳𝗿𝗶𝗲𝗻𝗱𝘀—𝗲𝘀𝗽𝗲𝗰𝗶𝗮𝗹𝗹𝘆 𝘀𝗶𝗻𝗰𝗲 𝗲𝘃𝗲𝗿𝘆𝗼𝗻𝗲 𝗶𝘀 𝗮𝗹𝗿𝗲𝗮𝗱𝘆 𝗺𝗮𝗿𝗿𝗶𝗲𝗱 𝗼𝗿 𝗶𝗻 𝗮 𝗿𝗲𝗹𝗮𝘁𝗶𝗼𝗻𝘀𝗵𝗶𝗽｡ 𝗜𝗳 𝗜 𝘀𝗲𝗲 𝘆𝗼𝘂 𝗱𝗼𝗶𝗻𝗴 𝘁𝗵𝗮𝘁❟ 𝗜'𝗹𝗹 𝗵𝗮𝘃𝗲 𝗲𝘃𝗲𝗿𝘆𝗼𝗻𝗲 𝗵𝗶𝗱𝗲 𝘆𝗼𝘂｡ 𝗜'𝗺 𝘀𝗲𝗿𝗶𝗼𝘂𝘀; 𝗶𝘁'𝘀 𝗻𝗼𝘁 𝗰𝗼𝗼𝗹｡ 𝗣𝗹𝗲𝗮𝘀𝗲❟ 𝗼𝗺𝗴｡
-<img width="498" height="272" alt="Image" src="https://github.com/user-attachments/assets/18bdfa23-6b1e-4890-9874-beaa217e4886" />
+<img width="498" height="272" alt="Image" src="https://github.com/user-attachments/assets/18bdfa23-6b1e-4890-9874-beaa217e4886" /> <img width="360" height="353" alt="Image" src="https://github.com/user-attachments/assets/34c8269d-b6e6-4a29-a441-079f9a4f03ad" />
