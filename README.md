@@ -1,7 +1,17 @@
 >## [𝐋α𝗒𐓣𝗂] 𝐀𝗀ⱺ𝗋α 𝗏α𝗂 𝗍ⱺꭑα 𐓣ⱺ 𝖼υ
 ## 𝐃𝐍𝚰𝐔𝐅 𝐀𝐍𝐃 𝐃𝐍𝐓:: 𝐖2𝚰. 𝐌𝗒 ᑲ𝖾αυ𝗍𝗂𝖿υᥣ 𝗌ⱺ𐓣, 𝖼υ𝗍𝖾 𝗌ⱺ𐓣! 𝚰 ᥣⱺ𝗏𝖾 𝗒ⱺυ α𐓣ᑯ ⱺυ𝗋 ⱺ𝗍ɦ𝖾𝗋 ᥣⱺ𝗏𝖾𝗌... 𝗒ⱺυ'𝗋𝖾 αᥣᥣ αᑲ𝗌ⱺᥣυ𝗍𝖾ᥣ𝗒 𝗀ⱺ𝗋𝗀𝖾ⱺυ𝗌!!!!!!, 𝚰 ᥣⱺ𝗏𝖾 𝗒ⱺυ, 𝖼υ𝗍𝗂𝖾𝗌!!!!!!!!!!!!
 
-<img width="650" height="450" alt="Image" src="https://github.com/user-attachments/assets/2fe708d6-c4dd-4302-b21b-795967e59333" />
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1e934b00-b7d5-454d-9e48-b8dabc69e14d" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/703a9ce3-3194-456a-be6e-a885797837e0" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/fc086373-8157-48d0-9b15-2f1e71a66f4e" />
+ q(≧▽≦q)
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/707b88e3-7b54-4afa-bfad-be51f306a816" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/743b766d-71cb-4535-bcf9-f0fdfd4bfe9d" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/71a989e9-25cd-41c3-ab38-cf45cba97dae" />
 
 **𝐒𝗄𝗂𐓣𝗌 𝐁𝗒 𝐅𝗋α𐓣𝗄𝗒 / 𝐅𝗋. ⱺ𝗋𝗀/Frankykawaiiuwu**
 
